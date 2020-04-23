@@ -95,3 +95,6 @@
 
 **New Rules**
 <br />
+
+**Be Humble**
+<br />
